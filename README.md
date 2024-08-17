@@ -53,3 +53,5 @@ Thanks, Apricot Computers!
 
 Message me at apricotcomputersofficial at gmail.com
 Or X me at, @mine4me01
+Medium, https://t.co/qYkVOrEwrG
+Telegram, https://t.me/+Ioi8jrQYjUA1YjRh
